@@ -1,4 +1,4 @@
-## Bolo de Cenoura
+## Bolo de Cenoura 🥕
 
 ### Ingredientes
 
@@ -27,22 +27,29 @@
 ### Modo de preparo
 
 Passo 1 :
+
 Separe as claras das gemas.
 
 Passo 2 :
+
 Bata as claras em neve e reserve.
 
 Passo 3 :
+
 No liquidificador coloque a cenoura, o óleo e as gemas e bata por 5 minutos.
 
 Passo 4 :
+
 Em uma tigela misture a farinha de trigo, o fermento e o açúcar, misture bem.
 
 Passo 5 :
+
 Depois junte os ingredientes batidos, misture bem, por último junte as claras em neve.
 
 Passo 6 :
+
 Em uma assadeira untada leve para assar em forno médio, pré-aquecido, por aproximadamente 40 minutos, ou até que fure com um palito e ele saia limpo.
 
 Passo 7 : Cobertura
+
 Leve todos os ingredientes ao fogo e mexa até que desgrude da panela.
